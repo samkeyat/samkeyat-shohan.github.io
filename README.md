@@ -1,4 +1,4 @@
-# S M Samkeyat Shohan
+# Samkeyat Shohan
 
 **Postdoctoral Researcher | Atmospheric Scientist**  
 National Center for Atmospheric Research (NCAR), Boulder, CO  
